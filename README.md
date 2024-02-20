@@ -7,3 +7,5 @@ Hi, I’m Dheeraj Parmar
 -- I aspire for a challenging position in an Organisation where I can enhance my skills and strenghten them in conjunction with Organisation's goals.
 
 -- Fun fact: Things are interesting , If you have interest in them .
+
+-- reach me :- dheerajparmar587@gmail.com
